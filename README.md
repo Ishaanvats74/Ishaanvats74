@@ -1,4 +1,4 @@
-##Hi 👋, I'm Ishaan vats
+- Hi 👋, I'm Ishaan vats
 - 🌱 I’m currently learning ... React.js , next.js, unreal engine etc....
 - 📫 How to reach me: ...ishaan.24589@sscbs.du.ac.in
 - 😄 Pronouns: ... He/His
