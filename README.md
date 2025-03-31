@@ -3,5 +3,5 @@
 - 📫 How to reach me: ...ishaan.24589@sscbs.du.ac.in
 - 😄 Pronouns: ... He/Him
 - ⚡ Linkedin Id : ... https://www.linkedin.com/in/ishaan-vats-565069334/
--     Discoed : ishaan7098
+- 🎮 Discoed : ishaan7098
 
